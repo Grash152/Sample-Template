@@ -2,3 +2,9 @@
 
 ### BG3 Mod Manager
 1. Download
+sdddddddddddddà
+asdà
+fas
+waeasdad
+sffffffffffffffff
+ccccccccccccccccccccccc
